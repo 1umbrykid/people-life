@@ -1,3 +1,2 @@
 # people-life
-Hello this is people-life mod source, you can now read and if you need use my code
-DO NOT REUPLOAD THE MOD
+This is all the recents updates, when i back with mod making, here you will can download stuff that im working on, like updates that i dindt release yet and you will can download they
